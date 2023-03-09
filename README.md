@@ -18,7 +18,6 @@
 
 # 📱联系方式
 s963253711@gmail.com
-963253711@qq.com
 
 https://www.t.me/Siota_02
 
