@@ -19,8 +19,4 @@
 
 
 # 📱联系方式
-s963253711@gmail.com
-
-https://www.t.me/Siota_02
-
-![8](https://user-images.githubusercontent.com/88393237/224020707-cd35502a-d5df-4cee-bd50-885107547f45.png)
+https://m.tb.cn/h.UKGkjbm?tk=YbbGd8CjQSw
